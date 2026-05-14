@@ -1,4 +1,4 @@
-#  
+#  ClickUp for macOS elite Tool: quick search & tags is the best ClickUp for macOS tool, featuring quick search and tags. Safe, efficient, and optimized for macOS users.
 
 
 
